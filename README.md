@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @219008187
 - 👀 I’m interested in business analysis 
 - 🌱 I’m currently learning monetary economics.
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me +250780613713
 
 <!---
